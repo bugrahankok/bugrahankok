@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I am Buğrahan 👋<br><br>💻 Computer Engineering student<br>🧠 Lifelong computer enthusiast<br>🔭 Amateur space observer<br>⚛️ Passionate about science & technology<br>🏊 Former professional swimmer<br>my instagram: https://www.instagram.com/bugrahankok<br>my twitter: https://x.com/bugrahankok<br>my website: bugrahan.me<br>
+Hi, I am Buğrahan 👋<br><br>💻 Computer Engineering student<br>🧠 Lifelong computer enthusiast<br>🔭 Amateur space observer<br>⚛️ Passionate about science & technology<br>🏊 Former professional swimmer<br>my website: bugrahan.me<br>
 
 
 ## 🌐 Socials:
